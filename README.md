@@ -1,1 +1,0 @@
-# https-rikoganteng.github.io-
